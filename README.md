@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ranjith11012024@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1LrTlxBXRH_ligoubac6JY1F0Bx1mxcNw/view?usp=drive_link](https://drive.google.com/file/d/1W3FxdgtaDBNdLuXuS4Q4wmN4blLp0jE0/view?usp=sharing)
+- 📄 Know about my experiences (https://www.linkedin.com/in/ranjith-kumar-0411-tech)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
